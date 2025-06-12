@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my 3rd year<br>🌱 I’m currently learning BSc.IT<br>🤝 I’m looking for help with AI/ML<br>📫 How to reach me raikarsachi@gmail.com<br>⚡ Fun fact I am still learning so as per life updates, this will update too.<br>
+🔭 I’m currently working on my 3rd year<br>🌱 I’m currently in BSc.IT<br>🤝 I’m looking for help with AI/ML<br>📫 How to reach me raikarsachi@gmail.com<br>⚡ Fun fact I am still learning so as per life updates, this will update too.<br>
 
 
 ## 🌐 Socials:
